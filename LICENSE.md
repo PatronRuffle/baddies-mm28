@@ -1,4 +1,4 @@
-#  
+#  secure Scripts for baddies is the best baddies Script, featuring anti-ban and unlimited stamina. Safe and powerful for all your needs.
 
 
 
